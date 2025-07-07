@@ -19,4 +19,4 @@
 我们始终坚持：让日本AV免费在线观看成为一种简单、自由且高质量的体验。不管你是追求激情刺激，还是偏好剧情演绎，都能在这里找到属于你的AV世界。现在就收藏本站，告别低质站点，开启你的高清成人观影之旅。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/nn55236/84054 ）</span>
